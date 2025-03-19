@@ -5,6 +5,7 @@
 - 📫 You can reach me by email:2079179031@qq.com
 - 😄 Pronouns: Leave traces in this world!
 
+My avatar is taken from the Magic: Sara Angel, one of my favorite cards
 
 <!---
 peter-lgxj/peter-lgxj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
